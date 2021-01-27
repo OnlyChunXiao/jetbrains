@@ -5,7 +5,7 @@ jetbrains激活群：865478884
 
 jetbrains全家桶：659892516
 # 激活码激活
-http://taojingling.cn/Jet/cdkey.html
+http://taojingling.cn
 # 账号激活
 http://taojingling.cn/Jet/account.html
 # 服务器激活
